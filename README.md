@@ -1,1 +1,1 @@
-# conteudo do curso em video 1° mundo
+# conteudo do estudo do curso em video que fiz do 1° mundo
